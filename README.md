@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning website development
 - 💞️ I’m looking to collaborate on absolutely nothing
 - 📫 How to reach me - you don't
-- 😄 Pronouns: i'm him 🗿
+- 😄 Pronouns: i'm them, not him. i will never be him :moyai:
 - ⚡ Fun fact: im dead inside
 
 <!---
